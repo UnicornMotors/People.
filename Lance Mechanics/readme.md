@@ -1,0 +1,1 @@
+- [why I quit automotive. while making 150k a year.](https://youtu.be/QFMuXefcfJY)
