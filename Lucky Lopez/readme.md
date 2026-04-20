@@ -1,0 +1,1 @@
+- [Auto Technician Shortage Is Getting Worse](https://youtu.be/8JnzrPrj-uM)
